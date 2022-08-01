@@ -1,0 +1,1 @@
+# LS-druhy-projekt
